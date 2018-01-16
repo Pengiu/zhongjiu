@@ -1,2 +1,0 @@
-# zhongjiu
-中酒
